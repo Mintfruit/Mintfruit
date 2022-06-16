@@ -1,4 +1,20 @@
-### Hi there 👋
+## 🎆 Our path is decentralization
+
+<div id="header" align="center">
+  <img src="https://media.giphy.com/media/3ornk57KwDXf81rjWM/giphy.gif" width="400"/>
+</div>
+
+I am student of **[ambassadors.school](ambassadors.school)**
+
+ **Contacts:**  
+ * ***[Telegram](https://t.me/Mintfruit "@Mintfruit")***  
+ * ***[GitHub](https://github.com/Mintfruit "@Mintfruit")***  
+ * ***[Twitter](https://twitter.com/@Loudermsc "@Loudermsc")***  
+ * ***[Discord](https://discord.com/) Mintfruit#7154***  
+
+
+
+
 
 <!--
 **Mintfruit/Mintfruit** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
