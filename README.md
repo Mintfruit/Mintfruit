@@ -4,7 +4,7 @@
   <img src="https://media.giphy.com/media/3ornk57KwDXf81rjWM/giphy.gif" width="400"/>
 </div>
 
-I am student of **[ambassadors.school](ambassadors.school)**
+I am student of **[ambassadors.school](https://ambassadors.school)**
 
  **Contacts:**  
  * ***[Telegram](https://t.me/Mintfruit "@Mintfruit")***  
