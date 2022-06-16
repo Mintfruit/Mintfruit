@@ -9,7 +9,7 @@ I am student of **[ambassadors.school](https://ambassadors.school)**
  **Contacts:**  
  * ***[Telegram](https://t.me/Mintfruit "@Mintfruit")***  
  * ***[Twitter](https://twitter.com/@Loudermsc "@Loudermsc")***  
- * ***[Discord](https://discord.com/) Mintfruit#7154***  
+ * ***[Discord](https://discord.com/users/222786449756520448) Mintfruit#7154***  
 
 
 
