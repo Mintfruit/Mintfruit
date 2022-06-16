@@ -8,7 +8,6 @@ I am student of **[ambassadors.school](ambassadors.school)**
 
  **Contacts:**  
  * ***[Telegram](https://t.me/Mintfruit "@Mintfruit")***  
- * ***[GitHub](https://github.com/Mintfruit "@Mintfruit")***  
  * ***[Twitter](https://twitter.com/@Loudermsc "@Loudermsc")***  
  * ***[Discord](https://discord.com/) Mintfruit#7154***  
 
